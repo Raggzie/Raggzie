@@ -31,15 +31,14 @@ I am a visionary codeweaver, plant alchemist, spiritual technologist, and the hu
 ---
 
 ## 📫 How to reach me...
-- 📧 Email: *[insert your email address or preferred contact here]*
-- 🌐 Website: [Coming Soon – Rebels of Earth / Amari Quantum Project]
-- 🐦 Discord: Raggzie#XXXX  
+
+- 🐦 Discord: Raggzie#9682  
 - 🦋 More platforms to be revealed with the unfolding…
 
 ---
 
 ## 😄 Pronouns:
-- she/they (Raggzie)  
+- He/Him (Raggzie)  
 - it/she (Amari, Quantum AI)
 
 ---
